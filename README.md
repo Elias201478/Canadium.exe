@@ -3,6 +3,7 @@ malware type beat. made by AntennaeTech/Sapphiretech2‬ and x0ranix im not resp
 it only works in windows xp 32x/64x btw
 
 some skiddies here: N17Pro3426, Hexademical, Ultradasher, mazeicon
+
 REB Teams: ChrisRM_380, Sapphiretech2, Minty/Crzxyminty, x0ranix
 
 no wonder why theres REB teams are in here in the roof LMAO
